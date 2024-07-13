@@ -2,7 +2,7 @@
 - 👀 I'm interested in software development, I also love frontend and artificial intelligence.
 - 🌱 I’m currently learning software programming.
 - 💞️ I’m looking to collaborate on software development.
-- 📫 Pilar.p31@hotmail.com
+- 📫 Pilar.p31@hotmail.com - https://www.linkedin.com/in/andreape%C3%B1aloza31/
 - 😄 Pronouns: Andre.
 
 <!---
